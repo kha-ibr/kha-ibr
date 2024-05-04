@@ -15,7 +15,7 @@
 
 - 📫 How to reach me **khalid.ibrahim20@hotmail.com**
 
-- ⚡ Fun fact **like to play fotball and Love the MMA world**
+- ⚡ Fun fact **like to play fotball and love the MMA world**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
